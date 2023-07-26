@@ -1,4 +1,4 @@
-Computer Science Student
+👩‍💻 Computer Science Student | IT Specialist 🧠 | Passionate about Coding 🚀🔧
 
 <!---
 nandofromthebando/nandofromthebando is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
