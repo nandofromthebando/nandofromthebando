@@ -1,4 +1,4 @@
-👩‍💻 Computer Science Student | IT technician🔧
+👨🏻‍💻 Computer Science Student | IT technician🔧
 
 
 <!---
